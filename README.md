@@ -1,0 +1,1 @@
+studio candlestick patterns su vari timeframe, per dopo applicarci metodi machine learning
